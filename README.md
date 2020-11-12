@@ -1,2 +1,3 @@
 # HELLO---WORLD
 WELCOME TO THE WORLD OF FUN &amp; ADVENTURE!
+i love to explore new things and i am hungry for knowledge. this world was full of fun and adventure there a lot of things to know and discover especially now we are in age of great technology and invention. who knows the next adventure is outside of the earth or beneath the earth... let's explore and enjoy this wonderful world we are in... see yahhhh....
